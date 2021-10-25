@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @nicksort 🐾
-- 👀 I’m interested in devops, infosec, ipfs, blockchain
+- 👀 I’m interested in devops, infosec, ipfs, blockchain, astrophotography
 - 📫 How to reach me ... @nicksort
